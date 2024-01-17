@@ -34,4 +34,4 @@ We have several example of our project on these following website.
 
 
 ## Support
-For support, email: jayneeshprajapati@gmail.com.
+For support, email: sumitagrahari006@gmail.com
